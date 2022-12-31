@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DesmoBesmo
+- 👀 I’m interested in MURDER
+- 🌱 I’m currently learning CANNIBALISM
+- 💞️ I’m looking to collaborate on SUICIDE
+- 📫 How to reach me AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
