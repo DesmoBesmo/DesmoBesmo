@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @DesmoBesmo
-- 👀 I’m interested in MURDER
+- 👋 Hi, I’m Quzi!
+- 👀 I’m interested in MURDERING NIGGAS
 - 🌱 I’m currently learning CANNIBALISM
-- 💞️ I’m looking to collaborate on SUICIDE
-- 📫 How to reach me AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
+- 💞️ I’m looking to collaborate on ASSASSINATING POLITICAL FIGURES
+- 📫 How to reach me: Add my discord @fredguy.
